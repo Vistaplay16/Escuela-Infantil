@@ -1,3 +1,0 @@
-# Escuela-Infantil
-
-Victor
